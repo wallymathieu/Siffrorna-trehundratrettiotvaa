@@ -14,14 +14,14 @@ Christoffer (en gammal vän) märker mig inte när jag tittar in i hans rum. Bre
 Själva tanken att ha ett så här högt nummer ger mig huvudvärk. Trehundra är i bortre ändan av normalfördelningen (medianen ligger på 50).
 
 Jag vandrar tankspridd genom den dåligt upplysta korridoren. I sidokorridor D35 ser jag en man med kraftig moustache. Jag får genast en känsla av paramnesi. Moustachen är tjock och kraftig och täcker delvis munnen. Han har på sig en brun överrock. Någon iögonfallande iochmed att de flesta har t-shirts på sig. Han tar mig avsides till korridor E34. Ena änden har rasat in, kanske 10 meter bort. 
-- Är du sugen på att delta i ett experiment?
+\- Är du sugen på att delta i ett experiment?
 Som vanligt har jag drivit runt i korridorerna utan saker att göra varför jag svarar:
-- Javisst! 
+\- Javisst! 
 
 Han tar fram ett litet föremål, den liknar en matt vit knapp utan hål i, sätter den i mina händer. Han ger mig dessutom en genomskinlig kapsel innehållande ett vitt pulver.
 
-- Håll den här. Jag kommer att ta dig ner genom en meditationsövning till ett transtillstånd. Sätt dig ner och blunda!
-- Föreställ dig att du åker ner längs en rulltrappa. Du kommer djupare och djupare ner. Känn hur allt eftersom du åker längre och längre ner, hur du slappnar av allt mer. Jag vill att du när du känner dig redo ska du föreställa dig att du kommer fram till en mysig plats. När du är framme ska du svälja pillret och fokusera på en enda tanke:
+\- Håll den här. Jag kommer att ta dig ner genom en meditationsövning till ett transtillstånd. Sätt dig ner och blunda!
+\- Föreställ dig att du åker ner längs en rulltrappa. Du kommer djupare och djupare ner. Känn hur allt eftersom du åker längre och längre ner, hur du slappnar av allt mer. Jag vill att du när du känner dig redo ska du föreställa dig att du kommer fram till en mysig plats. När du är framme ska du svälja pillret och fokusera på en enda tanke:
 
 ”när övervakningen inte fungerar”.
 
@@ -60,19 +60,19 @@ Kvar
 Jag står i kön till köttdisken. Dess sidor är kantade av olika trädetaljer. Grönsaksdisken är höger om köttdisken. De har lagt tunna träbitar för att hålla olika grönsaker isär. Jag är
 barfota. Kylan från betonggolvet biter i fotsulorna. Jag känner igen den person som står bakom disken. Utan att titta upp frågar jag honom om vad klockan är. Det är ett försök att få grepp om tiden igen.
 
-- Hej! Jag heter M..
+\- Hej! Jag heter M..
 
-- Gustav
+\- Gustav
 
-- Kommer du ihåg vad det är för datum?
+\- Kommer du ihåg vad det är för datum?
 
-- Det är den sextonde april.
+\- Det är den sextonde april.
 
 Nämner han som i förbigående.
 
-- Det har varit ett bra år det här?
+\- Det har varit ett bra år det här?
 
-- Nej.
+\- Nej.
 
 Bakom mig ett flertal personer, ivriga om att få betjäning. Framför Gustav ligger köttstycken inlindade i persilja och dill. Bakom honom hänger nyligen styckade kaniner. De har byggt upp en grill i murad tegelsten. Över glöden har de lagt ett av fönsternäten i stål. De köttstycken som ligger i ett kar vid sidan har ligger i en fet marinad. Ljuset är skumt, jag blinkar med ögonen. Det kliar i ögonen från rökoset. Glöden ger ett speciellt ljus. Luften är kvav och fyllig. Den här delen av affären ser väldigt annorlunda ut. Den luktar annorlunda. Normalt luktar den kalla luften avfreon och rengöringsmedel. Tystnaden accentuerar avsaknaden av det brummande ljudet av gamla läckande kylanläggningar. 
 
@@ -80,7 +80,7 @@ Jag behöver komma på en fråga jag kan ställa för att få reda på vilket å
 
 Frånvaro av bekanta ljud?
 
-- Nej, jag vet inte. Inte bara det.
+\- Nej, jag vet inte. Inte bara det.
 
 Rummet har en annan rytm.
 
@@ -90,15 +90,15 @@ träpaneler och har ett matt takfönster vilket gör att det är ljust men någo
 och omformas av den annorlunda känsla som den inger.
 
 Gustav avbryter mina tankar:
-- Vissa av övervakningskamerorna är tända. De visar vad man egentligen säger. Som till exempel om jag skulle vilja veta vad Grier, affärsbiträdet, säger.
+\- Vissa av övervakningskamerorna är tända. De visar vad man egentligen säger. Som till exempel om jag skulle vilja veta vad Grier, affärsbiträdet, säger.
 
 Han tar fram en skärm, låter fingrarna fara fram den och öppnar ett videoflöde där man ser en kvinna i förkläde som står bakom charkdisken. Orden hon yttrar, som kommer från skärmens högtalare, går inte att förstå. Det låter korthugget och enkelt. Totalt främmande och ikkemänskligt. Det låter som om hon hostar och frustar fram stavelserna. Det saknas hårda konsonanter.
 
-- Som du ser måste man vara försiktig med vad man gör framför dessa kameror.
+\- Som du ser måste man vara försiktig med vad man gör framför dessa kameror.
 
-- Bryr sig ingen?
+\- Bryr sig ingen?
 
-- Nej, ingen vet varför.
+\- Nej, ingen vet varför.
 
 Jag ryser, hårstrån över min kropp reser sig. Det känns alltigenom bisarrt.
 
@@ -117,7 +117,7 @@ Han är tillbaka
 Mannen med moustache är tillbaka. Jag hittade honom i korridor K7. Det varma ljuset från en skum belysning illuminerar hans allvarliga ansikte. På golvets kakelplattor runtomkring oss ligger gamla bitar av kålblad, flagor och fragment av plastpåsar.
 
 Han står vid en dörr reglad med ett kodlås.
-- Vet du hur man får upp det här?
+\- Vet du hur man får upp det här?
 Jag slår in talet trehundrasextiotvå följt av en nolla. 362 är det enda tal jag kan tänka på just nu, hjärnan är tom för övrigt. Den röda lysdioden som blinkat varje gång jag har slagit in en siffra, slocknar och börjar lysa grönt.
 
 Inne i rummet finns ett skrivbord i trä med metallben. Längs med väggarna är det breda metallhyllor där tv-skärmar är uppradade. Jag ser även några olika oscilloskåp. Höljena har en gråvit nyans.
@@ -128,17 +128,17 @@ Allt är avstängt. Vid dörren är ett elskåp med en mängd mindre strömbryta
 
 Jag trycker ner huvudströmbrytaren. Rummet fylls av ett högfrekvent och irriterande ljud. Det är ett sövande surrljud. Känslan av att det är för torrt sprider sig ner i magen. Ett nytt ljud: Metall som under korta intervaller skrapas när ventilationsfläktarna i den bortre väggen sätter igång. De tillför ett brummande till ljudmattan i rummet. 
 
-- Vad är det här?
+\- Vad är det här?
 
-- Det är någon sorts loop. Om du tittar på hur grafiken är strukturerad kan man se att det illustrerar en iteration över axlar med genestal 8, 21 och 512.
+\- Det är någon sorts loop. Om du tittar på hur grafiken är strukturerad kan man se att det illustrerar en iteration över axlar med genestal 8, 21 och 512.
 
 Siffror går likt vågor över skärmen.
 
-- Vad tror du att det här visar?
+\- Vad tror du att det här visar?
 
-- Kan det vara datumet vi letar efter?
+\- Kan det vara datumet vi letar efter?
 
-- Känns inte så.
+\- Känns inte så.
 
 Jag slappnar av och låter ögonen ofokuserat se skärmen i halvdunklet.
 
