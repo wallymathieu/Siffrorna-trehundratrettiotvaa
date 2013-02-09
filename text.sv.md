@@ -49,7 +49,7 @@ När barnen går ut ur rummet passar jag på att smyga ner den vita mobiltelefon
 Återigen
 --------
 
-Jag springer iväg till korridor E34. Mannen med moustache väntar på mig. Linoliumgolvets spräckligt gröna och vävtapeternas rosa smälter samman. Mannen tittar på den vita mobiltelefonen som jag gett honom. Obegripliga tecken och symboler fyller den lilla
+Jag springer iväg till korridor E34. Mannen med moustache väntar på mig. Linoleumgolvets spräckligt gröna och vävtapeternas rosa smälter samman. Mannen tittar på den vita mobiltelefonen som jag gett honom. Obegripliga tecken och symboler fyller den lilla
 LCD-skärmen för varje knapp man trycker på. Han ser oförstående inför min frustration. Den verkar inte fungera.
 
 Framför mina ögon tycks han töckna bort i overklighet och försvinna.
@@ -74,7 +74,7 @@ Nämner han som i förbigående.
 
 \- Nej.
 
-Bakom mig ett flertal personer, ivriga om att få betjäning. Framför Gustav ligger köttstycken inlindade i persilja och dill. Bakom honom hänger nyligen styckade kaniner. De har byggt upp en grill i murad tegelsten. Över glöden har de lagt ett av fönsternäten i stål. De köttstycken som ligger i ett kar vid sidan har ligger i en fet marinad. Ljuset är skumt, jag blinkar med ögonen. Det kliar i ögonen från rökoset. Glöden ger ett speciellt ljus. Luften är kvav och fyllig. Den här delen av affären ser väldigt annorlunda ut. Den luktar annorlunda. Normalt luktar den kalla luften avfreon och rengöringsmedel. Tystnaden accentuerar avsaknaden av det brummande ljudet av gamla läckande kylanläggningar. 
+Bakom mig ett flertal personer, ivriga om att få betjäning. Framför Gustav ligger köttstycken inlindade i persilja och dill. Bakom honom hänger nyligen styckade kaniner. De har byggt upp en grill i murad tegelsten. Över glöden har de lagt ett av fönsternäten i stål. De köttstycken som ligger i ett kar vid sidan har ligger i en fet marinad. Ljuset är skumt, jag blinkar med ögonen. Det kliar i ögonen från rökoset. Glöden ger ett speciellt ljus. Luften är kvav och fyllig. Den här delen av affären ser väldigt annorlunda ut. Den luktar annorlunda. Normalt luktar den kalla luften av freon och rengöringsmedel. Tystnaden accentuerar avsaknaden av det brummande ljudet av gamla läckande kylanläggningar. 
 
 Jag behöver komma på en fråga jag kan ställa för att få reda på vilket år det är, utan att avslöja mig.
 
@@ -107,7 +107,7 @@ Vänta nu lite?
 
 Lysrören blixtrar till, flimrar samt varierar i ljusstyrka. Likt en såpbubbla sträcks ljuset mellan smutsigt mörkgult och ett mer utspätt gult. 
 
-Jag befinner mig i korridor C21. Dörren till en liten uteplats är reglad med ett plåtbeslag. Som vanligt när enbart fönster skiljer mig från utanför får jag en intensiv känsla av panik. Det krävs att jag håller fast i en av sofforna för att inte ropa ut. Utanpå fönstret har något organiskt klägg torkat fast. Det ser ut som en obehagligt stor snorloska. 
+Jag befinner mig i korridor C21. Dörren till en liten uteplats är reglad med ett plåtbeslag. Som vanligt när enbart en glasskiva skiljer mig från utanför får jag en intensiv känsla av panik. Det krävs att jag håller fast i en av sofforna för att inte ropa ut. Utanpå fönstret har något organiskt klägg torkat fast. Det ser ut som en obehagligt stor snorloska. 
 
 Jag hoppar till när jag inser att dörren på andra sidan av uteplatsen är öppen. Jag börjar se uteplatsen för vad den används som. Någon har planterat lök och potatisplantor. Någon har alltså velat förhindra att uteplatsen blir en genomfart genom att regla dörren. 
 

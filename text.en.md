@@ -49,16 +49,16 @@ When the kids leave I take the opportunity to sneak the white phone into my pock
 Again
 --------
 
-I run away to the corridor E34. The man with the mustache is waiting for me. Linoliumgolvets dappled green and pink vävtapeternas merge. The man looks at the white phone that I gave him. Unintelligible characters and symbols fills the small 
-LCD screen for each key you press. He looks blankly before my frustration. It does not seem to work.
+I move away to the corridor E34. The man with the mustache is waiting for me. The linoleum floors dappled green and the pink of the woven wallpaper merge. The man looks at the white phone. Unintelligible characters and symbols fills the small 
+LCD screen for each keypress. He looks blankly before my frustration. It does not seem to work.
 
-In front of my eyes he seems blur away in unreality and disappear.
+In front of my eyes he seems to blur away into unreality and disappear.
 
 Remaining
 ----
 
-I stand in line at the meat counter. Its pages are full of different wood. Vegetable dishes are right on the meat counter. They have put thin pieces of wood to keep the different vegetables apart. I'm 
-barefoot. The cold from the concrete floor biting the soles. I recognize the person standing behind the counter. Without looking up, I ask him what time it is. It is an attempt to get a handle on time again.
+I stand in line at the meat counter. Its trays are full of different wooden details. Vegetable dishes are right on the meat counter. They have put thin pieces of wood to keep the different vegetables apart. I'm 
+barefoot. The cold from the concrete floor is biting my soles. I recognize the person standing behind the counter. Without looking up, I ask him what time it is. It is an attempt to get a handle on time again.
 
 \- Hello! My name is M..
 
@@ -74,25 +74,25 @@ He mentions in passing.
 
 \- No.
 
-Behind me, a number of people, eager to get service. Above Gustav are pieces of meat wrapped in parsley and dill. Behind him hangs recently dismembered rabbits. They have built up a grill in brick masonry. Over the coals, they added one of the windows network in steel. The pieces of meat which is located in a tank at the side, in a fat marinade. The light is dim, I blink. The itch in the eyes of rökoset. The glow gives a special light. The air is sultry and mellow. This part of the deal looks very different. It smells different. Normally smell the cold air avfreon and detergents. Silence accentuates the lack of the humming sound of the old leaking cooling systems.
+Behind me, a number of people, eager to get service. Above Gustav are pieces of meat wrapped in parsley and dill. Behind him hangs recently dismembered rabbits. They have built up a grill in brick masonry. Over the coals, they added one of the windows network in steel. The pieces of meat which is located in a tank at the side, in a fat marinade. The light is dim, I blink. The itch in the eyes of smoke fumes. The glow gives a special light. The air is sultry and mellow. This part of the store looks very different. It smells different. Normally you smell the cold air of freon and detergents. Silence accentuates the lack of humming from the old leaking cooling systems.
 
 I need to think of a question I can ask to find out what year it is, without revealing myself.
 
-Absence of familiar sounds?
+There is an absence of familiar sounds?
 
 \- No, I do not know. Not only that.
 
 The room has a different rhythm.
 
-I must have said some of these things out loud. Gustav laugh and show me a sign that I should go behind the counter. He opens a door into the warehouse. It seems hidden in the gloom. In there I see cardboard boxes stacked along the walls. Room walls are covered with bright 
-wood paneling and has a matte skylights making it light but somewhat subdued. It 
-is newly built. It has a good taste to the corridors otherwise lack. It has adopted 
-and reshaped by the different feeling that it inspires.
+I must have said some of these things out loud. Gustav laugh and show me with a flick from his wrist that I should go behind the counter. He opens a door into the warehouse. It seems hidden in the gloom. There I see cardboard boxes stacked along the walls. The walls are covered with bright 
+wood paneling and has a matte skylights making the light somewhat subdued. It 
+is recently built. It aesthetically pleasing in ways that to the corridors otherwise lack. It is adopted 
+and reshaped by the different feelings that it inspires.
 
 Gustav interrupts my thoughts:
-\- Some of the surveillance cameras are on. They show what they are really saying. Like for example if I would like to know what Grier, shop assistant, said.
+\- Some of the surveillance cameras are on. They show what you're really saying. As an example if I would like to know what Grier, our shop assistant, said.
 
-He brings up a screen, let your fingers go up and open a video stream where you see a woman in the apron behind the meat counter. The words she utters, coming from the monitor speaker, can not understand. It sounds curtly and easy. Total foreign and non human. It sounds as if she coughs and snorts up syllables. There are no hard consonants.
+He brings up a screen, let your fingers go up and open a video stream where you see a woman with an apron behind the meat counter. The words she utters, coming from the monitor speaker, can not be understood. It sounds curtly and simple. Totally foreign and non human. It sounds as if she coughs and snorts up syllables. There are no hard consonants.
 
 \- As you can see, one must be careful with what you do in front of these cameras.
 
@@ -105,11 +105,11 @@ I shiver, hairs of my body stand up. It seems altogether bizarre.
 Hold on a minute?
 --------------
 
-Fluorescent lighting flashes, flickers and varies in brightness. Like a soap bubble is stretched light between dirty dark yellow and a more diluted yellow.
+Fluorescent lighting flashes, flickers and varies in brightness. Like a soap bubble stretching light between dirty dark yellow and a more diluted yellow.
 
-I'm in the corridor C21. The door to a small patio is bolted to a sheet metal fittings. As usual, when only window separates me from the outside, I get an intense feeling of panic. It required that I hold in one of the sofas not to cry out. Surface window has no organic ahhs dry. It looks like a creepy big clump of snot.
+I'm in the corridor C21. The door to a small patio is bolted to a sheet metal fittings. As usual, when only a single pane of glass separates me from the outside, I get an intense feeling of panic. I need to grab hold of one the sofas not to cry out. There is a thin organic residue on the window. It looks like a creepy big clump of snot.
 
-I'm startled when I realize that the door on the other side of the patio is open. I'm starting to see the patio of what it used to. Someone has planted onion and potato plants. Someone has therefore wanted to prevent the patio becomes a passage through to latch the door.
+I'm startled when I realize that the door on the other side of the patio is open. I'm starting to see what the patio is used as. Someone has planted onion and potato plants. Someone has therefore wanted to prevent that the patio becomes a passage, by a latch on the door.
 
 He's back
 ---------------
