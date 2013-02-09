@@ -13,9 +13,9 @@ Christoffer (en gammal vän) märker mig inte när jag tittar in i hans rum. Bre
 
 Själva tanken att ha ett så här högt nummer ger mig huvudvärk. Trehundra är i bortre ändan av normalfördelningen (medianen ligger på 50).
 
-Jag vandrar tankspridd genom den dåligt upplysta korridoren. I sidokorridor D35 ser jag en man med kraftig moustache. Jag får genast en känsla av paramnesi. Moustachen är tjock och kraftig och täcker delvis munnen. Han har på sig en brun överrock. Någon iögonfallande iochmed att de flesta har t-shirts på sig. Han tar mig avsides till korridor E34. Ena änden har rasat in, kanske 10 meter bort. 
+Jag vandrar tankspridd genom den dåligt upplysta korridoren. I sidokorridor D35 ser jag en man med kraftig moustache. Jag får genast en känsla av paramnesi. Moustachen är tjock och kraftig och täcker delvis munnen. Han har på sig en brun överrock. Något iögonfallande iochmed att de flesta har t-shirts på sig. Han tar mig avsides till korridor E34. Ena änden har rasat in, kanske 10 meter bort. 
 \- Är du sugen på att delta i ett experiment?
-Som vanligt har jag drivit runt i korridorerna utan saker att göra varför jag svarar:
+Som vanligt har jag drivit runt i korridorerna utan saker att göra, varför jag svarar:
 \- Javisst! 
 
 Han tar fram ett litet föremål, den liknar en matt vit knapp utan hål i, sätter den i mina händer. Han ger mig dessutom en genomskinlig kapsel innehållande ett vitt pulver.
@@ -30,7 +30,7 @@ När jag sväljer min kapsel lyfter jag ögonlocken för en sekund och ser hur h
 Något helt annat
 ----------------
 
-Besvärande ljus sticker i ögonen. Jag känner plötsligt lukten av vad jag instiktivt upplever måste vara jord. En lukt jag inte kännt tidigare. Ljuset är speciellt. Det har en mer behagligt jämn gulaktig ton. Det har en annan kvalite än det flimrande lysrörsljuset. 
+Besvärande ljus sticker i ögonen. Jag känner plötsligt lukten av vad jag instinktivt upplever måste vara jord. En lukt jag inte kännt tidigare. Ljuset är speciellt. Det har en mer behagligt jämn gulaktig ton. Det har en annan kvalite än det flimrande lysrörsljuset. 
 
 Golvet består inte av linoleum utan stenplattor. Väggarna är målade med färger som normalt inte används. De är mörkare och ser mer naturliga ut jämfört med de vanliga smutsgråa pastellfärgerna. Det luktar fukt, jord och vatten. Jag får en överväldigande känsla av att befinna mig i en annan tidsålder.
 

@@ -9,42 +9,42 @@ Drifting
 The numbers three hundred thirty-two displayed on the screen in red thick letters. They disappear when he presses Alt and Q. Three hundred of one thousand two hundred. This number should be impossible:
 Like kicking yourself in the butt with a forward kick. Counterintuitive, it should not be possible.
 
-Christoffer (an old friend) did not notice me when I look into his room. Beside him is Andrew, who noticed that I stand outside. He waves me. I wave and go on in the hallway.
+Christoffer (an old friend) did not notice me when I looked into his room. Beside him is Andrew, who noticed me standing outside. He nods in my direction. I nod and continue in the hallway.
 
 The very idea of having a high number like this gives me a headache. Three hundred is in the far end of the normal distribution (the median is 50).
 
-I wander distracted by the poorly lit hallway. The side corridor D35 I see a man with a sharp mustache. I immediately get a sense of paramnesi. Mustache is thick and strong and partially covers his mouth. He is wearing a brown overcoat. Any conspicuous iochmed that most have t-shirts on. He takes me aside to corridor E34. One end has collapsed in, maybe 10 meters away.
+I wander absently in the poorly lit hallway. In the side corridor D35 I see a man with a sharp mustache. I immediately get a sense of paramnesi. The mustache is thick and strong and partially covers his mouth. He is wearing a brown overcoat. Conspicuous since most have t-shirts on. He takes me aside to corridor E34. One end has collapsed, maybe 10 meters away.
 \- Do you feel like participating in an experiment?
- As usual, I have been running around in the hallways without things to do so I answer:
+As usual, I have been drifting around in the hallways without things to do, so I answer:
 \- Yes! 
 
-He takes out a small object, it resembles a matte white button without holes in, put it in my hands. He gives me also a transparent capsule containing a white powder.
+He takes out a small object, it resembles a matte white button without holes in, puts it in my hands. He gives me also a transparent capsule containing some white powder.
 
 \- Hold this. I will take you down through a meditation practice into a trance. Sit down and close your eyes!
-\- Imagine that you go down an escalator. You will deeper and deeper. Feel as you go further and further down, how you relax more and more. I want you, when you feel ready, you should imagine that you arrive at a cozy place. Once you are there, do swallow the pill and focus on a single thought:
+\- Imagine that you go down an escalator. You go down deeper and deeper. Feel as you go further and further down, you feel how you relax more and more. I want that, when you feel ready, imagine that you arrive at a cozy place. Once you are there, swallow the pill and focus on a single thought:
 
 ”When the monitoring is not working”.
 
-When I swallow my capsule I lift the eyelids for a second and see how he takes a similar capsule simultaneously.
+When I swallow my capsule I lift my eyelids for a second and watch as he swallows a similar capsule simultaneously.
 
 Something completely different
 ----------------
 
-Troublesome light stings my eyes. I feel a sudden smell of what I instiktivt experience must be ground. A smell I not known before. The light is special. It has a more comfortable uniform yellowish tone. It has a different quality than the flickering fluorescent light.
+Troublesome light stings my eyes. I feel a sudden smell of what I instinctively experience as the smell of earth. A smell I've not known before. The light is special. It has a more comfortable uniform yellowish tone. It has a different quality than the flickering fluorescent light.
 
-The floor is not made of linoleum tiles. The walls are painted with colors that are not normally used. They are darker and look more natural than the usual dirt gray pastel colors. It smells moisture, soil and water. I get an overwhelming feeling of being me in a different era.
+The floor is not made of linoleum tiles, it's made of stone slabs. The walls are painted with colors that are not normally used. They are darker and look more natural than the usual dirt gray pastel colors. It smells of moisture, soil and water. I get an overwhelming feeling of being me in a different era.
 
-I walk down the F-corridor toward neighborhood committee.
+I walk down the F-corridor toward the neighborhood committee.
 
-On the way in I pass through the glass door that separates housing complexes from the city center area. Normally I need to use the id tag to enter. There are no guards.
+On the way in I pass through the glass door that separates the housing complexes from the city center area. Normally I would need to use the id tag to enter. There are also no guards.
 
-A surveillance camera sits above the entrance. The LED that indicates that the camera is still not lit. Either way, I can not get rid of the feeling that it was staring at me.
+A surveillance camera sits above the entrance. The LED that indicates that it's on is still not lit. Either way, I can not get rid of the feeling that there is something staring at me.
 
-When I come in, I see that there is a large table with a lot of papers and books scattered. There are also a few items scattered across the table. In one of the books is a white cell phone. I get the feeling that maybe I can find which year and what date I'm on. When I want to pick up the phone interrupted me of a primary school class is led around the room. Their teacher shows them plants placed on the white shelves hung on the walls. Mainly creepers and ferns. The children stare curiously at the paper lying around.
+When I come in, I see that there is a large table with lots of papers and books scattered on it. There are also a few items scattered across the table. On one of the books is a white cell phone. I get the feeling that it must contain the current year and what date. When I pause to pick up the phone, I'm interrupted by a primary school class led around the room. Their teacher shows them plants placed on the white shelves hung on the walls. Mainly creepers and ferns. The children stare curiously at the paper lying around.
 
-An LED lights up red on surveillance camera in a dark corner of the otherwise bright room.
+A LED lights up red on surveillance camera in a dark corner of the otherwise by sunlit room.
 
-When the kids go out of the room I take the opportunity to sneak into the white phone on the table.
+When the kids leave I take the opportunity to sneak the white phone into my pocket.
 
 Again
 --------
