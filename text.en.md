@@ -118,15 +118,15 @@ The man with the mustache is back. I found him in the corridor K7. The warm glow
 
 He stands next to a door bolted with a lock.
 \- Do you know how to open it?
-I enter the number three hundred sixty-two followed by a zero. 362 is the only number I can think of right now, the brain is empty also. The red LED that flashes every time I've turned into a figure, goes out and starts to turn green.
+I enter the number three hundred sixty-two followed by a zero. 362 is the only number I can think of right now, my brain feels empty. The red LED, that flashed for every key stroke, turns green.
 
-Inside the room there is a desk in wood with metal legs. Along the walls are the wide metal shelves where TV screens are lined up. I also see some different oscilloscope. The housings have a whitish hue.
+Inside the room is a desk of wood with metal legs. Along the walls are the wide metal shelves with TV screens lined up. I also see some different oscilloscopes. Housing with a whitish hue.
 
 There are wires and cables all over the room, becoming gordian knots here and there. The cords have a variety of thicknesses, but the colors are repeated in certain patterns: yellow, blue, red, black, and green.
 
-Everything is turned off. At the door is a control cabinet with a lot of smaller switches. The air is bothersome dry. Beside each switch is a laminated description of its function.
+Everything is turned off. At the door is a control cabinet with a lot of smaller switches. The air is bothersomelly dry. Beside each switch is a laminated description of its function.
 
-I press the main power switch. The room is filled with a high-pitched and annoying sounds. It is a hypnotic humming sound. The feeling that it is too dry, spreading down into your stomach. A new sound: Metal over short intervals scraped when the ventilation fans in the far wall starts. They bring a racket to sound the carpet in the room.
+I press the main power switch. The room is filled with high-pitched and annoying sounds. It is a hypnotic humming sound. The feeling that it is too dry is spreading down into the stomach. A new sound: Metal scraping during short intervals when the ventilation fans on the far wall starts. They bring a racket of sounds that carpets the room.
 
 \- What is this?
 
