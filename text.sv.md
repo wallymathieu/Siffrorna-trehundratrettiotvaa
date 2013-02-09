@@ -120,7 +120,7 @@ Han står vid en dörr reglad med ett kodlås.
 \- Vet du hur man får upp det här?
 Jag slår in talet trehundrasextiotvå följt av en nolla. 362 är det enda tal jag kan tänka på just nu, hjärnan är tom för övrigt. Den röda lysdioden som blinkat varje gång jag har slagit in en siffra, slocknar och börjar lysa grönt.
 
-Inne i rummet finns ett skrivbord i trä med metallben. Längs med väggarna är det breda metallhyllor där tv-skärmar är uppradade. Jag ser även några olika oscilloskåp. Höljena har en gråvit nyans.
+Inne i rummet finns ett skrivbord i trä med metallben. Längs med väggarna är det breda metallhyllor där tv-skärmar är uppradade. Jag ser även några olika oscilloskop. Höljena har en gråvit nyans.
 
 Sladdar och kablar löper runt i rummet och blir till trasselnästen här och var. Sladdarna har en mängd olika tjocklek, men färgerna återkommer i vissa mönster: Gula, blåa, röda, svarta, och gröna.
 
