@@ -145,6 +145,6 @@ I relax and let your eyes unfocused see the screen in the dusk.
 Somewhere else completely
 ---------------------
 
-I feel the smell of pine and'm in a pleasant shade. The water ripples light blue, like bleached by the sun. Down the beach is stone slabs barely covered by sand.
+I feel the smell of pine and I'm in a pleasant shade. The water ripples light blue, like bleached by the sun. Down the beach is stone slabs barely covered by sand.
 
 My head aches and feels warm, like after a short nap in the sun.
